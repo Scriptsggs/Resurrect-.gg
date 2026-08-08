@@ -1,0 +1,2 @@
+# Resurrect-.gg
+.ggs
